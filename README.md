@@ -1,6 +1,6 @@
 # Hi there, I'm Mmakopa Matlhatse Kekana
 
-![Profile Image](./profile.jpg)
+![Profile Image](./WhatsApp Image 2025-05-21 at 10.35.44_2e1eb8b0.jpg)
 <p align="center">
   <img src="./WhatsApp Image 2025-05-21 at 10.35.44_2e1eb8b0.jpg" alt="Mmakopa Matlhatse Kekana" width="200" />
 </p>
