@@ -1,6 +1,6 @@
 # Hi there, I'm Mmakopa Matlhatse Kekana
 
-![Profile Image](./profile.jpg)
+![Profile Image](./WhatsApp Image 2025-05-21 at 10.35.44_2e1eb8b0.jpg)
 
 I'm a dedicated and detail-oriented administrative professional with hands-on experience in healthcare hygiene management, call center operations, and public sector administration.
 
