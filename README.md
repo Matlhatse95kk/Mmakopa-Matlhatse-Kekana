@@ -6,7 +6,7 @@ I'm a dedicated and detail-oriented administrative professional with hands-on ex
 
 ## About Me
 
-- **Current Location:** Soshanguve, South Africa
+- **Current Location:** Pretoria, South Africa
 - **Phone:** 064 900 6279
 - **Email:** matlhatse95kk@gmail.com
 
